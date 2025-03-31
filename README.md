@@ -1,0 +1,1 @@
+# ProblemPlecakowy_Zad1
